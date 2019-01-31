@@ -1,1 +1,1 @@
-# 🕵 SELFBOT-BY:MAX 🕵
+line.me/ti/p/~gerhanaselatan
